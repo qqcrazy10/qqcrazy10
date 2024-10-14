@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on lesson
 - 📫 How to reach me emil me qqcrazy10@gmail.com
 - 😄 Pronouns???
-- ⚡ Fun fact:I am weired but funlny
+- ⚡ Fun fact:I am weired but funny
 
 <!---
 qqcrazy10/qqcrazy10 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
